@@ -1,2 +1,0 @@
-# yeojisun.github.io
-##
